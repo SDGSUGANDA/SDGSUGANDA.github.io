@@ -1,1 +1,0 @@
-# SDGSUGANDA.github.io
